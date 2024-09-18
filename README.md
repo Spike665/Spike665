@@ -1,4 +1,4 @@
-## Meu nome e ryan 💙
+## Meu nome é Ryan 💙
 # seja bem-vindo ao meu ghitub
 -  estou me desenvolvendo em javascrispt
 -  estudo na Escola lidya kidz moreira
