@@ -6,7 +6,8 @@
 Voce me encontra em📧
 
  0001122166308sp@al.educaco.sp.gov.br
-![]![image](https://github.com/user-attachments/assets/ca5a0aa1-9757-441b-8994-0633d03caf4f)
+![derp-dance-spongebob-dance](https://github.com/user-attachments/assets/adaf0b9d-f32d-4db0-b4a7-943791e6c9b1)
+
 
 
  
